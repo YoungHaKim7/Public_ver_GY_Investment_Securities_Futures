@@ -2,6 +2,10 @@
 
 <hr />
 
+# 진짜 대한민국 중앙선대위 정책본부, 제21대 대통령선거 정책공약집 '이제부터 진짜 대한민국' 
+- 공개 - ‘회복·성장·행복으로 국민통합’ - |게시자 : 더불어민주당 공보국  게시일 : 2025-05-28 11: 58: 47
+  - https://theminjoo.kr/main/sub/news/view.php?sno=0&brd=188&post=1212023&search=
+
 # 🇰🇷 21대 대한민국 대통령 이재명 공약 정리[|🔝|](#link)
 
 - https://www.yna.co.kr/election2025/pledge01
